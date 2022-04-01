@@ -1,6 +1,6 @@
 👋 Hi, I’m **@PedroProcter**
 
-I'm a dreamer. I love tecnology in general. I also love designing, making and deploying (the saint trinity).
+I'm a dreamer. I love technology in general. I also love designing, making and deploying (the saint trinity).
 
 Contact me via email: OProcter89@gmail.com
 
